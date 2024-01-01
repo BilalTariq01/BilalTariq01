@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **email4bilaltariq@gmail.com**
 
-- 📄 Know about my experiences [https://bilaltariq1.me/](https://bilaltariq1.me/)
+- 📄 Know about my experiences [https://bilal-tariq.tech/](https://bilal-tariq.tech/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
